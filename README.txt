@@ -1,2 +1,1 @@
-Guilherme é um via
-verdade
+Auto melhor professor
