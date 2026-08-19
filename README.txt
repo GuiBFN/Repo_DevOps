@@ -1,1 +1,1 @@
-Auto melhor professor
+Paldês melhor professor
